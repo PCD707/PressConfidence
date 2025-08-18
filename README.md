@@ -1,4 +1,4 @@
-Why Press Confidence?
+Why Press Confidence? [Link to blogpost](https://medium.com/@darrenbig/global-distrust-in-the-press-a-never-before-seen-crisis-e9b604ab6bdf)
 
 Public trust in the press is often described as “collapsing,” yet long-term data suggests the story is more complex. This project was born from a simple question: is confidence in the press really at an all-time low, or have people always been sceptical?
 
